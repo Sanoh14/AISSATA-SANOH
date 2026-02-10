@@ -1,4 +1,4 @@
-#👋 Bonjour, je suis Aïssata Sanoh See More
+👋 Bonjour, je suis Aïssata Sanoh See More
 
 🎯 Analyste de données | Tech & Digital Innovation 
 📍 Canada
